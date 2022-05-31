@@ -30,6 +30,6 @@ E muito mais.
 
 - [Instagram](https://www.instagram.com/paulopbi_/)
   
-- [Facebook](https://www.facebook.com/profile.php?id=100005676409318)
+- [Github](https://www.github.com/paulopbi)
   
-- [Linkedin](https://www.linkedin.com/in/paulo-victor-silva-rosa-2179a8215/)
+- [Linkedin](https://www.linkedin.com/in/paulopbi/)
